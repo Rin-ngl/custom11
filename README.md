@@ -34,4 +34,4 @@
 
 
 
-#### If you have app recommendations to add here to be scared to add me one Discord 'rin_ngl'
+#### If you have app recommendations, DM on Discord 'rin_ngl'!
